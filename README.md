@@ -1,4 +1,4 @@
-***V-Bucks Generator Without Human Verification***
+***V-Bucks Generator Without Human Verification (SOLVED)***
 
 [***Fortnite Unlimited V-Bucks Generator! CLICK HERE!***](https://barlog.org/f)
 
